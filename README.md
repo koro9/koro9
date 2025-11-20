@@ -2,7 +2,7 @@
 
 - 🌹 I am a developer with two years of practical experience 🐵.
 - :pencil: 博客：[CSDN💬](https://blog.csdn.net/qq_49193551)、[掘金💤](https://juejin.cn/user/558985638326174) - 足够硬核，内容老狠了！
-- 💌 微信：ldc18771179907- 备注来意
+- 💌 微信：- 备注来意
 
 
 
